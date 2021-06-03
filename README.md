@@ -1,1 +1,1 @@
-# Getting rid of trash was here
+# The best clicker in the entire world!
